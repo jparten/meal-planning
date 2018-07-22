@@ -7,9 +7,7 @@
 https://www.ibreatheimhungry.com/low-carb-meatballs-alla-parmigiana/
 
 ##### Side: 
-Salad.
-Buy Green Leaf Lettuce
-1 bunch carrots
+- Basic Salad
 
 ### Wednesday and Thursday:
 https://www.tasteofhome.com/recipes/flavorful-chicken-fajitas/
